@@ -46,7 +46,7 @@ Due to some reasons, the complete data is not fully open to the public for the t
 
 - Application method: Please submit an application through the designated email, indicating the applicant's name, affiliated unit, research direction, and data usage.
 
-- Application email: zhoulisha@foxmail.com
+- Application email: 【Due to force majeure, the email address of the application data will be announced after June 1, 2026.】
 
 - Response time: The author will respond within five working days after receiving the application.
 
